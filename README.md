@@ -1,2 +1,2 @@
 # rach-rue
-Everything 
+Just joined GitHub - still learning
